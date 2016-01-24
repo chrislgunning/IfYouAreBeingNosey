@@ -10,3 +10,15 @@ Do you get the feeling that I am blowing you off: not calling or returning calls
 
 I follow the common sense rule: initiate contact twice -> no response -> hint taken. 
 
+
+---------------------------------------------------------------------------------------------------------------------------------------------
+
+01/23/16
+
+I have been experiencing a lot of closure lately. The key principle I have learned over the years is: "Always go to far, that is where you will find the truth." 
+
+If you have enough time to Google my name and snoop around my GitHub account, then you better be prepared for my unfiltered opinion(s). If you have EVER disrespected me and spoken down to me off your high horse -- you are dead to me. This includes ALL of my siblings and both of my parents. Life is too short and blood is not thicker than water: no further contact is desired.
+
+
+
+
