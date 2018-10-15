@@ -1,6 +1,6 @@
 # IfYouAreBeingNosey
 
-I only make time for people I want in my life. 
+I keep to myself for a reason.
 
 
 
